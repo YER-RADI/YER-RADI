@@ -1,4 +1,3 @@
-![me](https://github.com/user-attachments/assets/21c13827-6e26-4574-9786-b3ced4cad9d8)
 Hello World, I'm Younes ER-RADI ☺️
 
 <!--
